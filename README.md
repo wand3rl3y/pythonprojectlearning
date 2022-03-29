@@ -4,7 +4,7 @@
 
 <p>
   <a href="hhttps://www.linkedin.com/in/wanderleyjunior/" rel="nofollow noreferrer">
-    <img src="https://i.stack.imgur.com/gVE0j.png" alt="linkedin"> LinkedIn
+    <img src="https://i.stack.imgur.com/gVE0j.png" alt="hhttps://www.linkedin.com/in/wanderleyjunior/"> LinkedIn
   </a> &nbsp; 
 
 <p align="left">
